@@ -1,1 +1,0 @@
-# git_WAD_TEAM
